@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+My tremenous skills extends to the horizon, namely *languages, math, science, engineering*. The key is **patience, resilience, persistence, consistency, tenaciousness, continuity** :tada:
